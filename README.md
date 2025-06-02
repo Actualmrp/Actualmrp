@@ -1,4 +1,6 @@
-Hello, i am Frostware Script Developer - Mrp
+Hello,i am a official Frostware Script Developer, and i made multiple scripts for Frostware
+
+-- This is my official GitHub Account.
 
 
 <!---
