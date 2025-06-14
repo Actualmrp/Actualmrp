@@ -1,6 +1,7 @@
-Hello,i am a official Frostware Script Developer, and i made multiple scripts for Frostware
+Hello,i am a official Frostware Script Developer, and i made multiple scripts for Frostware,
+If you wanna join frostware's discord server simply write discord.gg/getfrost in ur browser.
 
--- This is my official GitHub Account.
+-- This is my official GitHub Account ✌️😙
 
 
 <!---
