@@ -1,5 +1,4 @@
-Hello,i am a official Frostware Script Developer, and i made multiple scripts for Frostware,
-If you wanna join frostware's discord server simply write discord.gg/getfrost in ur browser.
+Hello,i am the owner of Aero Hub | Blue lock: rivals, Note: i don't work for frostware anymore.
 
 -- This is my official GitHub Account ✌️😙
 
