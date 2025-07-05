@@ -1,7 +1,4 @@
-Hello,i am the owner of Aero Hub | Blue lock: rivals, Note: i don't work for frostware anymore.
-
--- This is my official GitHub Account ✌️😙
-
+h
 
 <!---
 Actualmrp/Actualmrp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
